@@ -25,4 +25,4 @@
 完全免费，免注册观看
 所有资源完全免费，你无需注册账户或购买会员，直接点击即可观看。简化了繁琐的步骤，保证用户能够快速进入观看模式，享受最便捷的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/xlin156/3467889 ）</span>
